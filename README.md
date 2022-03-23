@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
 - 🥅 2022 Goals: Contribute more to Open Source projects
-- ⚡ Fun fact: I love to draw cars and play Non Stop Game
+- ⚡ Fun fact: I love to create chatbots for Slack, Line, Kakaotalk, etc.
 
 ### Languages and Tools:
 
