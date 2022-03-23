@@ -4,7 +4,7 @@
 
 - 🔭 I just launched my first Intro Page!
 - 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
+- 😎 I’m looking to collaborate with other content creators
 - 🥅 2022 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to create chatbots for Slack, Line, Kakaotalk, etc.
 
