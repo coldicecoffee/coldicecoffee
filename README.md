@@ -1,6 +1,6 @@
 ### Hi, I'm Hokyoon 👋
 
-## I'm a Traveler, Climber, Developer, and Wonderer!
+## I'm a Traveler, Creator, Developer, and Wonderer!
 
 - 🔭 I just launched my first Intro Page!
 - 🌱 I’m currently learning everything 🤣
