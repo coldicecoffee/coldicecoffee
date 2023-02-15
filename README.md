@@ -1,4 +1,4 @@
-### Hi, I'm Hokyoon 👋
+### Hi, I'm Hokyoon, or simply Kun 👋
 
 ## I'm a Traveler, Creator, Developer, and Wonderer!
 
